@@ -2,7 +2,8 @@
 - 👀 I’m interested in Graphic designing
 - 🌱 I’m currently learning graphic designing course
 - 📫 How to reach me pradakshina0910@gmail.com
-- 
+
+
 
 
 <!---
